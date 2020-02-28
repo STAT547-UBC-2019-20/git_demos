@@ -21,7 +21,7 @@ Sihaoyu Gao: lol
 
 Jake Gerlofs: :D
 
-Daniel Hadley: 
+Daniel Hadley: I also made a change.
 
 Rachel Han: 
 
